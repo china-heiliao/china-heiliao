@@ -1,5 +1,13 @@
-## Hi there 👋
+## 黑料今日更新页面：从热搜到真相，只在黑料网 👋
 
+http://38.181.25.130/url.html
+
+✨重要提醒✨收藏本页面，避免迷路！
+‼️微信/QQ用户请长按复制地址到浏览器里访问‼
+:近期部分国产浏览器屏蔽网址，推荐使用Chrome谷歌浏览器、Edge浏览器访问，苹果使用自带浏览safari。
+:如无法访问可切换其它网络或者WIFI。
+
+黑料网-黑料官网-黑料爆料-黑料爆料不打烊-免费吃瓜专注提供最新、最全面的娱乐资讯、明星八卦、影视动态。24小时不间断更新，让您第一时间掌握娱乐圈热点事件。
 <!--
 **china-heiliao/china-heiliao** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
